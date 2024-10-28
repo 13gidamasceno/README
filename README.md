@@ -11,7 +11,7 @@
 
 -Estou cursando o Primeiro Ano do Ensino Médio 👩‍🎓
 
-https://tenor.com/pt-BR/view/gossip-girl-intro-logo-beginning-gif-3862622
+![](https://media1.tenor.com/m/FfB4UPFSN9AAAAAC/gossip-girl.gif)
 
 
 
